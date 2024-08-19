@@ -4,7 +4,7 @@ Hi [](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127
 Data Analyst | Business and healthcare intelligence
 -----------------------------------------------
 
-20+ years of clinical healthcare and clinical data experience lifelong lover of data
+20+ years of clinical healthcare and clinical data experience, lifelong lover of data
 
 * 🌍  I'm based in West Sussex, UK
 * 🖥️  See my portfolio at [Project Portfolio](http://coming__)
